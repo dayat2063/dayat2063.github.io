@@ -1,1 +1,0 @@
-# dayat2063.github.io
